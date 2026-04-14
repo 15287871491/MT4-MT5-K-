@@ -11,3 +11,5 @@ MT5效果图
 https://www.bilibili.com/video/BV1KiDQB7EAo/?share_source=copy_web
 【开仓软件安装教学】 
 https://www.bilibili.com/video/BV1mGDXBQEfT/?share_source=copy_web
+
+学习讨论Q群924211044
